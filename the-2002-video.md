@@ -19,7 +19,7 @@ I had it in 2002; the HD upload came in 2016. That gap is the whole case. My que
 The title card names the Air Technical Intelligence Center in 1964, but ATIC was renamed in 1959. A real 1964 file would not carry that name.
 
 ## Why ASi
-ASi fuses Ai and Si, Artificial Super Intelligence, into one word. The 2002 video called it exactly that, decades before the world caught up. Then the government renamed AI to Super Intelligence (Executive Order 14434, 2026).
+ASi fuses Ai and Si, Artificial Super Intelligence, into one word. The 2002 video called it exactly that, decades before the world caught up. Then the government renamed artificial intelligence to Super Intelligence (Executive Order 14434, 2026).
 
 ## Help me find a pre-2016 copy
 Check old LimeWire or Kazaa folders, burned CDs, old hard drives and forum archives. Original metadata, codec and dates settle it. Message me on X @drew_ponder.
